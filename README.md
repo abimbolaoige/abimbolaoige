@@ -1,5 +1,5 @@
 -👋 Hi, I’m @abimbolaoige  
-- 👀 I’m interested in strategic communication, public speaking, storytelling, voice-over artistry, and data-driven information and analysis.  
+- 👀 I’m interested in strategic communication, public speaking, storytelling, voice agent, voice-over artistry, and data-driven information and analysis.  
 - 🌱 I’m currently learning more about data analytics for decision-making, communication, digital branding, and audience engagement strategies.  
 - 💞️ I’m looking to collaborate on data analysis, voice-over projects, PR campaigns, and youth/faith development programmes.  
 - 📫 How to reach me: abimbolaoige@gmail.com | [LinkedIn](https://www.linkedin.com/in/abimbolaoige) | [Twitter](https://x.com/familyprincesss?t=Ky8zg5OqmOTY3DDoyKptIg&s=09)  
