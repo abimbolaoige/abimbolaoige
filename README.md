@@ -1,4 +1,4 @@
--👋 Hi, I’m @abimbolaoige  
+-👋 Hi, I’m Abimbola Odunola Ige  
 - 👀 I’m interested in strategic communication, public speaking, storytelling, voice agent, voice-over artistry, and data-driven information and analysis.  
 - 🌱 I’m currently learning more about data analytics for decision-making, communication, digital branding, and audience engagement strategies.  
 - 💞️ I’m looking to collaborate on data analysis, voice-over projects, PR campaigns, and youth/faith development programmes.  
